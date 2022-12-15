@@ -2,11 +2,6 @@
 
 
 Kelompok 1 MI 3B
-
-
-
-
-
 Anggota : 
 
 
